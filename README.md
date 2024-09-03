@@ -1,2 +1,2 @@
-# teamo
-pagina web
+# amor
+detalle para una chica 
